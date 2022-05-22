@@ -10,12 +10,12 @@ _Optional Kitty Time_
 - If you want to play with Oliver and Finn, I left the feather and wormy toy on the Fireplace mantel.
 - If you also want to give them treats I left the Temptations cat treats on the counter in the kitchen.
 
-**Also, if you have time. If you could also water Jules garden, these are the steps:**
+**Also, if you have time, Jules garden could use some water, these are the steps:**
 
-1. Just turn on faucet by fence, the tube will drip slowly in the garden bed.
+1. Turn on the faucet by fence, the tube will drip slowly in the garden bed.
 2. Let run for 30-40 minutes then turn off.
 
-**Please enjoy any snacks or beverages available in the pantry and fridge. Including the Blatons above the fridge!**
+**Please enjoy any snacks or beverages available in the pantry and fridge. There should be cold water bottles and Coors Light. You can also break open that bottle of Blantons above the fridge!**
 
 **Thanks again brotha. :)**
 
