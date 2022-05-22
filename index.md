@@ -7,8 +7,8 @@
     - If it isn't too bad you don't need to do this both days. Wednesday only is fine.
 
 _Optional Kitty Time_
-- If you want to play with Oliver and Finn, I left the feather and wormy toy on the Fireplace mantel.
-- If you also want to give them treats I left the Temptations cat treats on the counter in the kitchen.
+- I left Oliver and Finn's favorite feather and wormy toy on the Fireplace mantel.
+- You can also give them the Tempatations treats I left on the counter in the kitchen.
 
 **Also, if you have time, Jules garden could use some water, these are the steps:**
 
