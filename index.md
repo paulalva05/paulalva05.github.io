@@ -7,10 +7,10 @@
     - If it isn't too bad you don't need to do this both days. Wednesday only is fine.
 
 _Optional Kitty Time_
-- I left Oliver and Finn's favorite feather and wormy toy on the Fireplace mantel.
+- I left Oliver and Finn's favorite feather and wormy toy in the drawer with the wet food.
 - You can also give them the Tempatations treats I left on the counter in the kitchen.
 
-**Also, if you have time, Jules garden could use some water, these are the steps:**
+**Also, Jules garden could really use some water, these are the steps:**
 
 1. Turn on the faucet by fence, the tube will drip slowly in the garden bed.
 2. Let run for 30-40 minutes then turn off.
