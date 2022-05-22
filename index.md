@@ -6,9 +6,9 @@
 3. Clean litter box in master bathroom.
     - If it isn't too bad you don't need to do this both days. Wednesday only is fine.
 
-_Optional Playtime_
-4. If you want to play with Oliver and Finn, I left the feather and wormy toy on the Fireplace mantel.
-5. If you also want to give them treats I left the Temptations cat treats on the counter in the kitchen.
+_Optional Kitty Time_
+- If you want to play with Oliver and Finn, I left the feather and wormy toy on the Fireplace mantel.
+- If you also want to give them treats I left the Temptations cat treats on the counter in the kitchen.
 
 **Also, if you have time. If you could also water Jules garden, these are the steps:**
 
